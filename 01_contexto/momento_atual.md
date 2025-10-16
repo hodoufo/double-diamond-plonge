@@ -1,0 +1,8 @@
+- Percalços financeiros (ano difícil 2025)
+- Baixa de projetos - clientes tentando fazer sozinho
+- Incerteza sobre 2026
+- Insegurança com Plia, pois foram investidos 500k reais
+- Decisão emocional do Plia sem análise de risco adequada
+- Falta de liderança técnica na empresa
+- Potencial subutilizado de alcance e reconhecimento
+- Necessidade de explorar comunidade Plongê (pessoas físicas na base)
